@@ -20,3 +20,6 @@ Shopify · Magento · WooCommerce · Claude Code · Cursor
 - ✨ [Decopop.com](https://decopop.com)
 - 🧸 [Poppis.com](https://poppis.com)
 - 🏠 [PerfectHome.com](https://perfecthome.com)
+
+**Find me**
+- 💼 [LinkedIn](https://www.linkedin.com/in/richardns/)
